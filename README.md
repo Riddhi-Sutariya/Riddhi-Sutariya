@@ -1,3 +1,3 @@
 # RIDDHI SUTARIYA
 
-### CSE Student 💻
+### COMPUTER ENGINEER 💻
